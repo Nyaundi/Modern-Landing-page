@@ -11,3 +11,6 @@
 Join the channel to see more videos like this. [Bedimcode](https://www.youtube.com/c/Bedimcode)
 
 ![](/preview.png)
+
+
+八月对我来说是非常艰难的一个月，事情正在分崩离析，老板对我说了伤人的话，我的丈夫在颤抖，上帝帮助我 14/08/2023。这是因为我没有在精通上下功夫
